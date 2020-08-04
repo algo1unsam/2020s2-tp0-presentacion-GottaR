@@ -5,5 +5,5 @@
 
 **Hola soy Rodo**.
 
-[Menu_202](https://photos.google.com/photo/AF1QipPPv2JAb0uzu5tqpwBR2vTSgeF_APc65Aj_bIbQ)
+(C:\Users\Juli\Downloads\20171226_201140.jpg)
 
